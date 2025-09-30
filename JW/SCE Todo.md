@@ -1,0 +1,7 @@
+- [x] message Shelton about photo 
+- [x] talk to Matt about instructors sharing media. 
+	- [x] We usually need two roving wireless mics, as well as 4 mics for the platform (1 for instructor, 2 for demos, 1 for the whiteboard/lectern) could you let us know if this is not available? kingdom hall WiFi, PC code, alarm code 
+- [x] rectangular table on stage needed, full size tresle table, with table cloth
+- [x] buy table cloth, whiteboard (1500x900) and markers. The only brand that works consistently well are Artline5109A – the others are not wide enough to be seen at a distance. We usually use 2x Black, 1x Blue, 1x Red, 1xGreen in a week. 
+- [ ] print lapel cards 
+- [ ] Oct 13 check in on order 
